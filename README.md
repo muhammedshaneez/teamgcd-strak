@@ -1,0 +1,1 @@
+# teamgcd-strak
